@@ -16,9 +16,9 @@
 
 以下所提到的所有机场都是在敏感时期表现的良好，使用者可以不用担心被墙的危险。
 
-### [羊圈机场：](https://bit.ly/2xUdFDE)
+### [羊圈机场：](http://mielink-invite.com/register?aff=N8K0IO)
 
-[Shadowsocks](https://bit.ly/2xUdFDE#)[机场](https://bit.ly/2xUdFDE#)是它经常搭载的高端路线，在SSR机场的庇护之下，这个服务商迄今为止已经稳稳当当的运行了三年，在这三年当中没有出现过断裂信息的情况，最近这个服务商更是和V2ray进行了联动，它的稳定性更上一层楼了。在特殊的敏感时期，心阶云依旧是保持着稳健的科学上网。
+[Shadowsocks](http://mielink-invite.com/register?aff=N8K0IO#)[机场](http://mielink-invite.com/register?aff=N8K0IO#)是它经常搭载的高端路线，在SSR机场的庇护之下，这个服务商迄今为止已经稳稳当当的运行了三年，在这三年当中没有出现过断裂信息的情况，最近这个服务商更是和V2ray进行了联动，它的稳定性更上一层楼了。在特殊的敏感时期，心阶云依旧是保持着稳健的科学上网。
 
 * 封闭邀请是这个服务商最大的特色。
 * 极大程度的保证了使用者的上网安全。
